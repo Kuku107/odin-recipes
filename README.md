@@ -1,1 +1,1 @@
-After finished this projec you will enhance your HTML skill.
+After finished this project I will enhance my HTML skill.
